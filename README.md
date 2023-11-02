@@ -1,1 +1,0 @@
-# aridhos-quest
